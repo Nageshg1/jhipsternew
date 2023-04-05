@@ -1,0 +1,1 @@
+# jhipsternew
